@@ -96,3 +96,4 @@ Citations:
 [17] https://support.discord.com/hc/en-us/community/posts/24228085071383-Gate-io-Referans-Kodu-3930511-2024-Haziran
 [18] https://poe.com/Referral-Code-Bot
 [19] https://kriptoreferanskodu.wordpress.com/2024/03/12/gateio-referans-kodu-nasil-kullanilir/
+[20] https://www.gate.io/signup?ref=GATECODE
